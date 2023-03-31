@@ -1,1 +1,0 @@
-Bachelor lessons by week
